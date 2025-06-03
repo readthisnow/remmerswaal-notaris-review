@@ -59,4 +59,3 @@ Remmerswaal Notarissen is een toegankelijke en betrouwbare keuze in het Westland
 Duidelijke tarieven, vriendelijke communicatie, en gewoon goed geregeld.
 
 👉 Bekijk zelf: [remmerswaalnotaris.nl](https://notarissen-online.nl)  
-📍 Locatie: Langestraat 198, 2691 BJ 's-Gravenzande
